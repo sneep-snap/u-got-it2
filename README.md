@@ -25,3 +25,5 @@ kek
 det va en gång en himmel
 
 den va blå xD
+
+hehe sluta busa med filen xD
