@@ -30,3 +30,7 @@ hehe sluta busa med filen xD
 
 ## helo
 yoyo
+
+
+# bus test 2
+busit
