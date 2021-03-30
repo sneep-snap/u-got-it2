@@ -26,4 +26,9 @@ det va en gång en himmel
 
 den va blå xD
 
+<<<<<<< HEAD
 hehe sluta busa med filen xD
+=======
+## helo
+yoyo
+>>>>>>> b36db1b6693de56e087964acfb76e58c67627b87
