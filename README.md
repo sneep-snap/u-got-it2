@@ -10,5 +10,5 @@ Cool man, cool
 yep pepe
 :D
 
-### fourth one is the charm
+### fourth time is the charm
 like gandalfs always said
