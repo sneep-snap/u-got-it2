@@ -12,29 +12,13 @@ yep pepe
 ### fourth time is the charm
 like gandalfs always said
 
-hehe no he dident xD
 
-# helo its time
-time to eaaat!
+# IM WORKING ON A DREAM
 
-# Now im here :D
-yeeah
-
-kek
-
-det va en gång en himmel
-
-den va blå xD
-
-hehe sluta busa med filen xD
-
-## helo
-yoyo
+Baby!
 
 
-# bus test 2
-busit
+# oh call me maybe?
+here my number: poop pooop
 
-heheh
-lololol
-xD
+1. Fart i class.
